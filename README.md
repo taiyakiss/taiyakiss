@@ -18,4 +18,5 @@ me rn:
 
 
 
-                  [https://static.wikia.nocookie.net/cookierunkingdom/images/e/ed/Cookie0631-personal1.gif/revision/latest?cb=20250507065756](https://static.wikia.nocookie.net/cookierunkingdom/images/e/ed/Cookie0631-personal1.gif/revision/latest?cb=20250507065756)
+                  ![image](https://github.com/user-attachments/assets/fa98ef24-35ac-4c35-a10e-493c17446bc3)
+
