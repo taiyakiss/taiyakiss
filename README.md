@@ -1,6 +1,6 @@
 
 
-![f747c9c5-7668-42bd-a389-e2eddf71e94f](https://github.com/user-attachments/assets/34366216-f71d-46c4-bcc7-b3c11f51fcaa)
+![dividers   text frames _ return](https://github.com/user-attachments/assets/73ef2d69-07a8-4c78-986d-bf11dea42f51)
 
 
 
@@ -10,4 +10,5 @@
 
 
 
-![_ C♡ _ PIXELPRISM (1)](https://github.com/user-attachments/assets/9337c0f1-65bd-47d5-a558-e6d335746e87)
+                                  ![0b25ad0e4259c6001c977f13c9e52387](https://github.com/user-attachments/assets/f0e75be0-48d4-4af1-a2ae-1e2e65f6ca41)
+                                                  
