@@ -8,7 +8,3 @@
 ![a936956263e57a3270ee34ae4ffd9f7b](https://github.com/user-attachments/assets/45c25b7f-41e3-44fa-be4e-17088bd671a7)
 
 
-
-
-
-![_ C♡ _ PIXELPRISM](https://github.com/user-attachments/assets/976a8de8-0b21-4bdc-afae-fef898d2ba32)
