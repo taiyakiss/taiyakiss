@@ -1,10 +1,14 @@
-me rn:
+
+
+![f747c9c5-7668-42bd-a389-e2eddf71e94f](https://github.com/user-attachments/assets/34366216-f71d-46c4-bcc7-b3c11f51fcaa)
+
+
+
+
+![a936956263e57a3270ee34ae4ffd9f7b](https://github.com/user-attachments/assets/45c25b7f-41e3-44fa-be4e-17088bd671a7)
 
 
 
 
 
-![Cookie0631-personal1](https://github.com/user-attachments/assets/e373d588-4bc7-47aa-b033-71d54c13e70c)
-
-
-
+![_ C♡ _ PIXELPRISM](https://github.com/user-attachments/assets/976a8de8-0b21-4bdc-afae-fef898d2ba32)
